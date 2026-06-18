@@ -1,1 +1,1 @@
-Craig looks at Tweek nervously as he sit on the bad.
+Craig looks at Tweek nervously as he sits on the bed.
